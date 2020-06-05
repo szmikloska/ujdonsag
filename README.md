@@ -1,0 +1,2 @@
+# ujdonsag
+kezdo lepesek
